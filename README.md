@@ -1,2 +1,0 @@
-# nikkamacachor
-portfolio
